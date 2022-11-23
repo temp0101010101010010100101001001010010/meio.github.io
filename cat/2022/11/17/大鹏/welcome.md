@@ -1,0 +1,1 @@
+Three. Three. Can you hear me? There is a hole shining in the holes between your eyelids. I have never been to Versailles before. I want to be loved. Zero. I am standing behind you now. One. I am two of us, standing behind you now. The goddess eats the city in the sea. Is. There's a hole in the floor with an answer waiting in it. God. Look, you're hatching. You're hatching!
